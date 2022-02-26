@@ -10,5 +10,5 @@
 
 📫 How to reach me: maximemiloubos@gmail.com
 
-⚡ Fun fact: I love playing Sims 4.
+⚡ Fun fact: I love playing Sims 4
 -->
